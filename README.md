@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there my name Bagus Adi Nugroho👋
 
 **BagusAdiNugroho/bagusadinugroho** is a ✨ _special_ ✨ repository 
 
